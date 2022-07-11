@@ -1,4 +1,4 @@
-# English-studing-notes-on-bambool  
+# English-studying-notes-on-bambool  
 my English notes  
 mainly oral notes  
 updating others depend on really   
